@@ -5,4 +5,4 @@
 * Python
 * MATLAB
 
-  In that order. Check out my repos.
+In that order. Check out my repos.
