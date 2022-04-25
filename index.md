@@ -1,3 +1,3 @@
 # About Miles Sitcawich
-![Picture of Miles Sitcawich](IMG_1856.HEIC)
+![Picture of Miles Sitcawich]
 [Mechanical Page](mechanical.md)
