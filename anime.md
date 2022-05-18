@@ -5,7 +5,8 @@
 4. Attack on Titan
 5. Death Note
 6. Golden Boy
-7. Tokyo Ghoul (currently on szn 3)
+7. Tokyo Ghoul (finished szn 3) - reading manga rn tho
+8. Jujutsu Kaisen
 
 # Favorites
 * Demon Slayer
