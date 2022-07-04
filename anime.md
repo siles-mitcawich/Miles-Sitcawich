@@ -8,6 +8,7 @@
 7. Tokyo Ghoul & re (couldn't finish - was so bad)
 8. Jujutsu Kaisen
 9. Fullmetal Alchemist: Brotherhood
+10. Cowboy Bebop
 
 # Favorites
 * Demon Slayer
