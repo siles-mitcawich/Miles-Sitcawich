@@ -13,3 +13,10 @@
 # Favorites
 * Demon Slayer
 * Anohana
+
+# Will watch in the Future
+* Neon Genesis Evangelion
+* Steins;Gate
+* Hunter X Hunter
+* Violet Evergarden?
+* One Punch Man?
