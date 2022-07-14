@@ -18,5 +18,6 @@
 * Neon Genesis Evangelion
 * Steins;Gate
 * Hunter X Hunter
+* Vinland Saga
 * Violet Evergarden?
 * One Punch Man?
