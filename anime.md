@@ -9,13 +9,13 @@
 8. Jujutsu Kaisen
 9. Fullmetal Alchemist: Brotherhood
 10. Cowboy Bebop
+11. Neon Genesis Evangelion
 
 ## Favorites
 * Demon Slayer
 * Anohana
 
-## Will watch in the Future
-* Neon Genesis Evangelion
+## To Watch List
 * Steins;Gate
 * Hunter X Hunter
 * Vinland Saga
