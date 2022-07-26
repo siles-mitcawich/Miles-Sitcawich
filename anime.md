@@ -18,8 +18,8 @@
 
 ## To Watch List
 * Steins;Gate
-* Hunter X Hunter
 * Vinland Saga
 * Violet Evergarden
-* One Punch Man?
+* One Punch Man
 * Dragon Ball?
+* Hunter X Hunter
