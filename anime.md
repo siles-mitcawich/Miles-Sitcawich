@@ -23,3 +23,4 @@
 * One Punch Man
 * Dragon Ball?
 * Hunter X Hunter
+* Ghost in the Shell
