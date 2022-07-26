@@ -20,5 +20,6 @@
 * Steins;Gate
 * Hunter X Hunter
 * Vinland Saga
-* Violet Evergarden?
+* Violet Evergarden
 * One Punch Man?
+* Dragon Ball?
