@@ -14,6 +14,7 @@
 ## Favorites
 * Demon Slayer
 * Anohana
+* Neon Genesis Evangelion
 
 ## To Watch List
 * Steins;Gate
